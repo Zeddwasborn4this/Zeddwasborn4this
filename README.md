@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zeddwasborn4this
+- 👋 Hi, I’m @Hamzat Sado
 - 👀 I’m interested in ... Cyber Security
 - 🌱 I’m currently learning ... Basics 🙂
 - 💞️ I’m looking to collaborate on ... Cyber Security Projects and Start ups
